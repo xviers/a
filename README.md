@@ -4,7 +4,7 @@
  <p align="center"> $${\color{blue}
    CHARLES.   (use   light   mode) }$$
     
- <p align="center"> $${\color{blue}
+ <p align="center"> $${\color{red}
    bookends;     of   the   same   soul   ﹌ }$$
 
 <img src="[https://freeimage.host/i/untitled146-20250417143539.31fE4Tu]" /></a>
